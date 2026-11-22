@@ -1,1 +1,1 @@
-# projekt-ko-cowy-SaraZygan-JakubZajkowski
+# projekt-koncowy-SaraZygan-JakubZajkowski
